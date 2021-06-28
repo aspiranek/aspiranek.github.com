@@ -1,1 +1,0 @@
-# aspiranek.github.com
